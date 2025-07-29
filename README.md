@@ -1,2 +1,2 @@
 ## Have a beautiful time!
-https://indeepsoft.ly.ro/
+https://indeepsoft.ly.ro
